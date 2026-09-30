@@ -79,4 +79,6 @@ trademarks of Google LLC.
 
 ## Contact
 
-Questions about this policy: use the Support tab on the extension's Chrome Web Store listing.
+**Contact:** ShortsBlockerEX@gmail.com
+
+
